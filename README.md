@@ -35,26 +35,36 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Certaine irrefragable propositions worthy of serious consideration. By I.H. B. of ExonHall, Joseph, 
+
+1. TO MY DREAD SOVERAIGN, THE KINGS MOST Excellent MAIESTIE.
+
 #####Body#####
 
-1. 1.
+1. Seaven irrefragable Propositions concerning Oaths and Covenants.
 
-1. 2.
+    _ 1.
 
-1. 3.
+    _ 2.
 
-1. 4.
+    _ 3.
 
-1. 5.
+    _ 4.
 
-1. 6.
+    _ 5.
 
-1. 7.
+    _ 6.
 
-1. 1.
+    _ 7.
 
-1. 2.
+1. COROLLARIE.
+
+1. Two, as undoubted Propositions, concerning Church-government.
+
+    _ 1.
+
+    _ 2.
+
+1. COROLLARIE.
 
 **Types of content**
 
